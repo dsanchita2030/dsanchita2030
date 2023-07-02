@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **dsanchita2030@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1kgXfUNYqNmxYglNgNLQuIzcY7Tu8cvi2/view?usp=sharing](https://drive.google.com/file/d/1kgXfUNYqNmxYglNgNLQuIzcY7Tu8cvi2/view?usp=sharing)
+- 📄 Know about my experiences **https://drive.google.com/file/d/16TWtrCmCwzFTtLTWy_JfJi02iVokqxX_/view?usp=sharing**
 
 - ⚡ Fun fact **I think I can make my surroundings happy**
 
